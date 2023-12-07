@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Higzzy
-- 👀 I’m interested in 3D Modeling for VRChat and Voice Acting, Specialty ~Angel~Dust~ (no vmod, changer, or filters)
+- 👀 I’m interested in 3D Modeling for VRChat and Voice Acting, Specialty Angel Dust (no vmod, changer, or filters)
 - 🌱 I’m currently learning at a personal pace
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me RozeHigz@gmail
